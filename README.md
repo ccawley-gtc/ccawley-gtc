@@ -1,2 +1,2 @@
-- Connor Patrick Cawley
+- Connor P Cawley
 - CIST1510 at Gwinnett Technical College
